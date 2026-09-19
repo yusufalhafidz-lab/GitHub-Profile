@@ -1,4 +1,4 @@
-# Hii 👋, I'm Yusuf Al hafidz
+# Hii 👋, I'm Yusuf Al Hafidz
 
 ### 👨‍💻 About Me
 * 🎓 First-year Student / Tech Enthusiast
